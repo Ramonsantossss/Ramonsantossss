@@ -1,2 +1,1 @@
-Bot md pra whatsapp... 
-Tentei kkkk
+
